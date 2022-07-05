@@ -1,5 +1,5 @@
 # 💫 About Me:
-Recent Northcoders graduate looking for my next step into development.
+Recent Northcoders graduate enthusiastically continuing my learning and development to build on my existing knowledge and take my skills to the next level. Looking for the opportunity to progress further within a development role.
 
 
 ## 🌐 Socials:
